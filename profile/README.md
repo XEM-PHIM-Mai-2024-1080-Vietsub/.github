@@ -101,11 +101,20 @@
 
 <p>Mai là phim có phụ đề đầy đủ</p>
 
+
 <a href="https://www.taskade.com/p/xem-phim-mai-2024-full-hd-vietsub-high-quality-01HRCGBNFTER4D6HXANVSYVX08">Mai Phim hd 4k</a><br />
 
-<a href="https://github.com/xem-phim-Mai-2024-1080-4K-Vietsub">Mai Phim Online 4k</a><br />
+<a href="https://github.com/xem-phim-Mai-2024-1080-4K-Vietsub">Mai Phim hd online</a><br />
 
-<a href="https://sbnaqb0822.expandcart.com/index.php?route=product/product&product_id=373">Mai Phim HD Online</a><br />
+<a href="https://sbnaqb0822.expandcart.com/index.php?route=product/product&product_id=373">Mai Phim hd vietsub</a><br />
+
+<a href="https://github.com/XEM-PHIM-Mai-2024-Vietsub-Full-4K">Mai Phim hd online 4k</a><br />
+
+<a href="https://fjakkr4850.expandcart.com/index.php?route=product/product&product_id=373">Mai Phim hd 8k</a><br />
+
+<a href="https://www.taskade.com/p/xem-phim-mai-2024-full-4-k-vietsub-high-quality-01HRCKXDAGHVWVBP4R3B55HDZ4">Mai Phim hd 12k</a><br />
+
+<a href="https://github.com/Xem-Phim-Mai-VietSub-2024">Mai Phim Online 12k</a><br />
 
 <p>Mai Phim hd</p>
 
